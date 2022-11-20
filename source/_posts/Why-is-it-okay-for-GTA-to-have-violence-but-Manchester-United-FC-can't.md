@@ -1,0 +1,86 @@
+---
+title: Why is it okay for GTA to have violence but Manchester United FC can't
+date: 2022-11-20 15:14:35
+categories:
+- Casino
+tags:
+---
+
+
+#  Why is it okay for GTA to have violence but Manchester United FC can't?
+
+If you're a fan of the Grand Theft Auto (GTA) video game series, you're well aware of its violence. Players are able to run around and shoot at pedestrians, blow up cars and engage in all sorts of mayhem. The series is one of the most popular in the world, with each installment selling millions of copies.
+
+Despite its popularity, many people argue that the GTA series should not be allowed because of its graphic violence. They say that it's okay for games like these to exist because they're just games, but it's not okay for Manchester United FC, a real-life soccer team, to have violence associated with it.
+
+Why is it that we allow violence in some contexts but not others? Is it really because GTA is just a game and Manchester United FC is a real-life organization? Or is there something else going on here?
+
+When we talk about violence in the context of entertainment, we're talking about something different than when we talk about violence in the context of war or self-defense. In entertainment, we're often talking about simulated violence. This is violence that doesn't involve real people or real consequences. It's fake.
+
+Simulated violence can be fun and entertaining. There's nothing wrong with that. In fact, it can be quite therapeutic. Researchers have found that playing violent video games can actually help people relieve stress and anger.
+
+So why is it okay for us to enjoy simulated violence in games like GTA but not okay for Manchester United FC to have violence associated with it?
+
+There are a few possible reasons:
+
+1) Real-life violence is seen as more serious than simulated violence.
+2) Real-life violence has actual consequences while simulated violence does not.
+3) Real-life violence can be harmful while simulated violence is generally safe.
+
+#  Double Standards? Why is it Fine for GTA to Have Gaming But Not 2k Manchester United FC
+
+Double Standards? Why is it Fine for GTA to Have Gaming But Not Manchester United FC
+
+There’s no denying that video gaming is big business. In the US, for example, the industry is worth over $23 billion and is expected to grow even further in the years ahead. While there are a number of different types of video games, one of the most popular – and lucrative – genres is the ‘shoot em up’ or action game. Titles such as Grand Theft Auto (GTA) regularly make it into the list of top-selling video games each year.
+
+And yet, while violence and mature content in video games is generally accepted, there tends to be a very different reaction when it comes to football clubs using the same imagery in their marketing. Earlier this year, Manchester United FC were criticised for using an image of two computer-generated dogs fighting in a scene from their new game, FIFA 18. The club was accused of promoting animal cruelty and was even reported to the police.
+
+Some people have argued that there is a clear double standard at play here. After all, GTA and other action games routinely contain violence and explicit content without attracting anywhere near as much criticism. So why is it ok for gaming companies to churn out these titles but not football clubs?
+
+There are a few potential explanations for this discrepancy. One possibility is that football clubs are simply seen as being more ‘mainstream’ than video game companies, and thus held to a higher standard by the public. Another explanation could be that video games are seen as being primarily for entertainment purposes, while football clubs are considered more serious institutions. As such, people are less likely to accept violence and gore in football club marketing materials than they are in video games.
+
+Whatever the reason may be, it seems clear that there is a double standard when it comes to violent and explicit content in video games and other forms of media. While gaming companies can get away with releasing controversial titles, football clubs face harsh criticism for using similar images in their marketing material. This inconsistency needs to be addressed if we want to create a society where images of violence are not routinely tolerated simply because they appear in a video game.
+
+#  Is It Fair That GTA Can Have Violent Gaming But 2k Manchester United FC Can't?
+
+GTA is one of the most successful video games franchises in history. The games are known for their edgy & violent content. 
+
+But recently, developer Rockstar has been criticised for allowing players to attack queue-jumping pedestrians in GTA Online - a mode that's based on the real-life city of Los Angeles.
+
+In sharp contrast, Manchester United FC - one of the world's biggest and most successful football clubs - has come under fire for releasing a new video game that simulates real-life matches between teams managed by Manchester United legends.
+
+Critics say that the game trivialises the sport of football, and glorifies violence. They argue that it's inappropriate for a Premier League club like Manchester United to release such a game while Rockstar is being criticised for its GTA content.
+
+So, is it fair that GTA can have violent gaming content but 2k Manchester United FC can't?
+
+On one hand, you could argue that Rockstar is unfairly singled out for its violent content, while other video game developers get off scot-free. After all, there's plenty of violence in movies and TV shows, but no-one seems to be targeting those industries.
+
+On the other hand, you could argue that Manchester United FC shouldn't be making a video game that glorifies violence when there are so many other issues affecting the world today. footballer Steven Gerrard has even spoken out against the game, saying "It’s not something I’d want my kids to play."
+
+Ultimately, it's up to each individual gamer to decide whether they think GTA's violent content is appropriate or not. However, it does seem unfair that Manchester United FC can release a video game that simulates real-life violence, while Rockstar is being criticised for its GTA content.
+
+#  GTA Gets to Have Violent Gaming But 2k Manchester United FC Doesn't – Is This Fair? 
+
+GTA is a game series that is well known for its violence and gore. Scenes of people being killed, cars wrecking and general mayhem is common in the GTA games. However, there is another game series that also simulates violence, but because it features Manchester United FC rather than criminal gangs, this violence is deemed acceptable.
+
+ 2K’s Manchester United FC game has been released to critical acclaim, with many hailing it as the best football game ever made. However, it has also been met with criticism from some who argue that the level of violence in the game is unacceptable because it features a real-life football team. One scene in the game sees a player tackling an opponent so hard that he knocks him unconscious. Another shows a player stamping on an opponent’s head.
+
+Some argue that because GTA features fictional characters and scenarios, it can get away with more violent content than a game which features a real-life football team. Is there really such a big difference between someone being killed in GTA and someone being injured in a tackle in Manchester United FC? Surely both instances are equally violent?
+
+It could be argued that games like GTA should not be allowed to feature such graphic violence because they are marketed towards children. The Manchester United FC game, on the other hand, is clearly aimed at adults and therefore can be allowed to contain more violence. This argument does not really hold water though, as many children will undoubtedly be playing the GTA games regardless of their age rating, while few adults will bother playing the Manchester United FC game.
+
+Ultimately, it seems unfair that one type of violent gaming is deemed acceptable while another is not. Both games are essentially teaching players how to enact violence in a simulated environment. There seems to be no good reason why one type of simulation should be allowed while the other is not.
+
+#  Double Standards? GTA Gets to Have Violent Gaming But 2k Manchester United FC Doesn't
+
+2K Manchester United FC has recently come under fire for allowing their players to depict violence on the virtual pitch, while Rockstar Games’ Grand Theft Auto series seems to get off scot-free.
+
+The row centres around a scene in the latest edition of 2K Manchester United FC where a character can be seen kicking an opponent in the head, leaving him bloodied and on the ground. In comparison, GTA allows gamers to kill pedestrians and police officers alike with relative impunity.
+
+Critics argue that this constitutes a double standard on the part of the gaming industry, with one company being allowed to promote violent behaviour, while another is censured for simulating it. This disparity is made all the more galling by the fact that 2K Manchester United FC is a subsidiary of Take-Two Interactive, who also publish GTA.
+
+When contacted for comment, a spokesperson for Take-Two Interactive defended their decision to allow violence in 2K Manchester United FC but not in GTA, arguing that “the two products are targeted at different markets”. They added that “GTA is not marketed towards children and we take our responsibilities as a publisher very seriously”.
+
+Others have criticised this response, pointing out that many children will inevitably play both games. Furthermore, they argue that it sends out a confusing message about which behaviours are acceptable and which are not.
+
+This isn’t the first time that GTA has been accused of promoting violence. The series has been blamed for everything from teenage murders to carjackings, and many people feel that it glamorises criminal behaviour. However, it should be noted that there is no evidence to suggest that GTA actually causes violence – rather, it seems to be simply one factor among many which can lead to criminal activity.
